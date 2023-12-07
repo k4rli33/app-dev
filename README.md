@@ -1,2 +1,1 @@
-# app-dev
-My first repository
+She must travel to the human world in order to understand herself and discover her true purpose. Her kinda-sorta boyfriend, Ken (Ryan Gosling), comes along for the ride because his own existence depends on Barbie acknowledging him. Both discover harsh truths—and make new friends –along the road to enlightenment.
